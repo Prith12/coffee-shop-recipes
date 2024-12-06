@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 shot Espresso Roast
-- 1 1/2 cups ice
+- 1 1/2 cups ice cubes
 - 3/4 cup whole milk
 - 2 Tbsp dark chocolate sauce/syrup
 - Whipped cream
@@ -24,3 +24,5 @@
 ### Step 3
 
 - Pour blended mixture into 16-oz glass.
+### Step 4 
+- Top with whipped cream  and chocolate shavings.
